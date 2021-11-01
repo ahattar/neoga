@@ -1,5 +1,5 @@
-neoga
-=====
+neoga.fun
+=========
 # Neo Yoga for fun
  
 Do you wanna save the world
