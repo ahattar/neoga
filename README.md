@@ -4,11 +4,11 @@ neoga
  
 Do you wanna save the world
 
-Come join me in our Public Library
+Come join me in our Public Library in Ramsey, NJ
 
 We will have fun
 
-## On Saturday 11:00 AM = EST - November 6, 2021
+## On Saturday 11:00 AM EST - November 6, 2021
  
 ## Yeh...Rules...
 
