@@ -1,4 +1,4 @@
-neoga.fun:Neo Yoga for fun
+   neoga.fun:   Neo Yoga for fun
 ==========================
 Come join me in our Public Library in Ramsey, NJ
 
