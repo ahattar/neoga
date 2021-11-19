@@ -1,7 +1,6 @@
-# neoga.fun:   
-# Neo Yoga for fun
+# Neo Yoga for fun ## @ neoga.fun
 
-Come join me in our Public Library in Ramsey, NJ
+## Come join me in our Public Library in Ramsey, NJ
 
 We will have fun
 
